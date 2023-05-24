@@ -7,6 +7,7 @@ ahora que entre a trabajar espero continuar en este mundo hermoso, el cual te ge
 esperemos siga siendo asi
 
 extrañare mi vida de estudiante 
+Creado por el increible platzi team🐾
 
 me da nostalgia muchas cosas</p>
 <strong>me despido mundo platzi😿</strong>
