@@ -2,6 +2,7 @@ Hola mi nombre es corazon
 naci en Mexico Queretaro, 
 tengo 24 años
 experimento 1
+experimento 2
 master 1
 
 master 2
