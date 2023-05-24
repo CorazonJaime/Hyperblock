@@ -8,6 +8,7 @@ esperemos siga siendo asi
 
 extrañare mi vida de estudiante 
 Creado por el increible platzi team🐾
+Incluye ejemplos en windows 
 
 me da nostalgia muchas cosas</p>
 <strong>me despido mundo platzi😿</strong>
